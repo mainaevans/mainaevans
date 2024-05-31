@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @mainaeva
+- 👋 Hi, I’m @mainaevans
 - ⚡ Fun fact: 
 --->
